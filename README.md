@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @se1aal
+- 👀 I’m interested in coding and crypto (currency & graphy)
+- 🌱 I’m currently learning to design
